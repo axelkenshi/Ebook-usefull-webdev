@@ -7,3 +7,4 @@ banyak sekali bagian yang memaparkan tips dan tutorial berguna dalam bentuk baha
 bahkan setelah kamu belajar dari sumber manapun, masih ada beberapa hal yang belum kamu ketahui, jadi harapannya buku ini bisa memberikan insight lebih terhadap pemahamanmu.
 
 ### Semoga bermanfaat yaaa 🥰🌻
+silakan download buku pdf untuk mengaksesnya
